@@ -4,4 +4,4 @@
 ## Notice
 
 
-**Do not copy !**
+**FREE**
