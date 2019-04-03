@@ -4,4 +4,4 @@
 ## Notice
 
 
-**FREE**
+**Do not copy and submit**
